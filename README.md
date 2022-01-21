@@ -1,1 +1,1 @@
-I must not fear, fear is the mind-killer.
+I used to be an adventurer like you, then I took an arrow in the knee.
