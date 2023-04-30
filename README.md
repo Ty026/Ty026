@@ -1,1 +1,1 @@
-没有文化的人不伤心
+Que Sera, Sera
